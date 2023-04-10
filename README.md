@@ -7,7 +7,7 @@ Hola, soy Matías Jastrebow, tengo 18 años y soy estudiante del segundo año de
 
 ### Algunas cosas que me gustan
 
-* Fútbol
+* Fútbol (Soy de Independiente)
 * Leer
 * Escuchar música
 * Videojuegos
